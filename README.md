@@ -1,0 +1,3 @@
+- Sono Nicolò Audisio
+- Frequento L'ITIS G. Rivoira 
+- Indirizzo di Informatica e Telecomunicazioni
